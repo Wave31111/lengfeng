@@ -12,7 +12,7 @@ One of the key drivers fueling the growth of the furnaces market is the rapid pa
 
 In addition, global investments in clean energy are further accelerating the adoption of energy-efficient furnaces. The International Energy Agency (IEA) reported that worldwide investments in clean energy reached USD 560 billion in 2022. This shift toward sustainability is driving demand for furnaces that align with renewable energy sources, offering lower carbon emissions and improved efficiency.
 
-**[Get your FREE Sample Now!](https://www.nextmsc.com/furnaces-market/inquire-before-buying)**
+**[Inquire Before Buying](https://www.nextmsc.com/furnaces-market/inquire-before-buying)**
 
 The construction industry's rapid growth is another contributing factor. The Global Construction Activity Index recorded a significant increase in Q1 2024, rising from +10 in Q1 2023 to +15. As new buildings and infrastructure projects emerge, the need for heating solutions such as furnaces continues to grow, further propelling market demand.
 
